@@ -1,0 +1,1 @@
+The moon causes a solar eclipse
